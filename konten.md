@@ -13,3 +13,6 @@ https://www.freepik.com/premium-psd/rounded-corner-business-cards-mockup-with-sh
 https://www.freepik.com/premium-psd/rounded-corner-business-cards-mockup-with-shadow_10049994.htm#from_element=cross_selling__psd
 
 
+https://www.freepik.com/premium-psd/shopping-bag-mockup_28403132.htm#from_element=cross_selling__psd
+
+https://www.freepik.com/premium-psd/white-e-black-shopping-bag-mockup_319277360.htm#from_element=cross_selling__psd
